@@ -1,0 +1,2 @@
+# TUGAS-INDIVIDU-GitHub
+Dea Dewi Damayanti (20230202014)
